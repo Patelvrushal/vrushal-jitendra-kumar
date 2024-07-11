@@ -1,1 +1,1 @@
-# vrushal-jitendra-kumar
+# educational.github.io
